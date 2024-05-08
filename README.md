@@ -1,1 +1,1 @@
-# dinossaurorgb-reposit-rio
+# dinossaurorgb-repositório
